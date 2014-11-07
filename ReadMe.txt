@@ -1,1 +1,1 @@
-jkkjbjk
+It wil work in lan.
